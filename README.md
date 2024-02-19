@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @7vAyyy
+- 
+- 👀 me makes funny things sometimes ...
