@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @7vAyyy
-  
-- 👀 i make funny things sometimes ...
+
+just chilling
